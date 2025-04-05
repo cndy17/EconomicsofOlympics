@@ -1,6 +1,6 @@
 # Economic Implications of Hosting a Major Sports Event 
 
-![](https://en.wikipedia.org/wiki/Olympic_symbols#/media/File:Olympic_rings_without_rims.svg)
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a7/Olympic_flag.svg/255px-Olympic_flag.svg.png)
 
 Hosting a major sporting event enhances team performance through the Home Advantage Effect—driven by familiar conditions, crowd support, and increased investment—while also boosting short-term economic growth through tourism, infrastructure investment, and job creation. However, the long-term economic impact may be negative due to rising debt, underutilized infrastructure, and financial strain. 
 
